@@ -1,4 +1,4 @@
-# Getting a Job as an IC Field Applications Engineer
+# Finding an Internship
 
 ## References
 
